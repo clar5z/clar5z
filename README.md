@@ -2,7 +2,6 @@
 
 - 👩‍💻 Front-end
 - 🎯 Mercadóloga
-- 🔎 Buscando Job
 - 💻 Aprendendo React
 
 
