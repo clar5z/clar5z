@@ -6,6 +6,9 @@
 👩‍💻 Desenvolvedora Front-end / Front-end developer
 
 
+💪 10 anos de experiência na área / 10 years of experience in the field
+
+
 🎯 Mercadóloga / Marketer
 
 
