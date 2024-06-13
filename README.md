@@ -15,7 +15,7 @@
 📌 Pernambucana / Brazilian 🇧🇷
 
 
-💻 Atualmente aprendendo React / Currently learning React
+💻 Atualmente aprendendo Java e React / Currently learning Java and React
 
 
 
