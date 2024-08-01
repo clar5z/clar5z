@@ -3,13 +3,10 @@
 ## Sobre mim / About me
 
 
-👩‍💻 Desenvolvedora Front-end / Front-end developer
+👩‍💻 Desenvolvedora Full Stack / Full Stack developer
 
 
 💪 10 anos de experiência na área / 10 years of experience in the field
-
-
-🎯 Mercadóloga / Marketer
 
 
 📌 Pernambucana / Brazilian 🇧🇷
