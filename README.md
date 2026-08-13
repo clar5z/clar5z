@@ -6,7 +6,7 @@
 👩‍💻 Desenvolvedora Full Stack / Full Stack developer
 
 
-💪 11 anos de experiência na área / 10 years of experience in the field
+💪 11 anos de experiência na área / 11 years of experience in the field
 
 
 📌 Pernambucana / Brazilian 🇧🇷
